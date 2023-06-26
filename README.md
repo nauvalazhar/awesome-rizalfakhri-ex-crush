@@ -7,4 +7,4 @@
 4. suicidal girl
 
 ## Upcoming
-1. Ria
+1. Ria (he still won't give up but the chance is like 5%)
